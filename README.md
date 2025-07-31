@@ -1,2 +1,0 @@
-- xlucas posso passar na sua casa depois da escola?
-- pode mas eu nao quero ver voce de calcinha provando minhas calça pq eu nao me aguento
